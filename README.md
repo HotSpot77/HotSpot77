@@ -1,7 +1,7 @@
 ## Second Account!!
 
 <img width="2048" height="805" alt="image" src="https://github.com/user-attachments/assets/dc0ce4e1-5d24-45df-b3a5-5a6fe7540670" />
-Dont eat me! >.< [
+Dont eat me! >.< 
 
 <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/4054d71a-71e3-437b-b847-5d42ae593573" /> Mha account love Katsuki! And Kirishima!! 
 
